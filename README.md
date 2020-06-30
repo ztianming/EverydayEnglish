@@ -90,3 +90,28 @@ disruptive
 ### 6.26
 #### 
 Confidence is the prerequisite for a happy life. 自信是幸福生活的前提。  
+You can banish the idea from your mind.  
+I acted in conformity with my principles.  
+He put on the air of an aristocrat.
+
+prognosticate a disaster 预测灾难  
+personal idiosyncrasy 个人特点  
+pernicious rumor 致命的谣言  
+Yellow River Cantana 黄河大合唱  
+a repressive dictatorship 专制独裁政府  
+the stratification of American society 美国社会阶层  
+pediatrician 儿科  
+obstetrician 产科  
+
+
+### 6.28
+#### 
+Prejudice will hamper a person from doing the right thing. 偏见会阻止人做正确的事情。  
+It is diffcult to pacify the rebels. 平息动乱很困难。  
+urban viaduct 城市高架桥  
+imperative manner 
+security footage 监控录像  
+video montage  
+
+### 6.29
+#### 
