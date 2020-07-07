@@ -115,3 +115,34 @@ video montage
 
 ### 6.29
 #### 
+You should avoid unnecessary repetition.  
+Beethoven was a towering musical genius.  
+Don't panic. I can still him off.  
+
+facial cometics 
+anthology n.  
+anthropology n.  
+The Imperial Palace  故宫
+The Template of Heaven 天坛  
+The Palace Museum 故宫博物院  
+a film premiere 首映  
+permier 首相  
+
+### 6.30
+#### 
+The inspiration is elusive.  
+I simmer with anger. 我在怒火中烧。 
+The meteorologist predicted rains for the next days.  
+You can't coerce her into obedience.  
+Find out the underlying causes.  
+The turlip looks very beautiful. 郁金香  
+turnip 萝卜
+The pain increased in intensity.  
+This is the indignity for female. 这是对女性的侮辱。   
+
+
+a stellar education  
+mural 壁  
+moral 道德  
+command 命令  
+commend 推荐  
