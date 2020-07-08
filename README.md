@@ -122,7 +122,7 @@ Don't panic. I can still him off.
 facial cometics 
 anthology n.  
 anthropology n.  
-The Imperial Palace  故宫
+The Imperial Palace  故宫  
 The Template of Heaven 天坛  
 The Palace Museum 故宫博物院  
 a film premiere 首映  
@@ -146,3 +146,76 @@ mural 壁
 moral 道德  
 command 命令  
 commend 推荐  
+
+### 7.1
+#### 
+river silt 淤泥  
+demise of real state 过户不动产  
+Her honesty was all a facade. 表面  
+what do you think about the thriller?  
+encyclopedia 百科全书
+
+### 7.2
+#### 
+A job search can be a big undertaking.  
+Exercise keeps you supple. 灵活  
+No entry for vehicle. 交通工具禁止入内.  
+
+aboriginal forest 原始森林  
+a anthropoid ape 类人猿
+
+### 7.3
+#### 
+She keeps a spotless reputation.  
+Her kindness has given me a deep impression.  
+
+the under-supplied energy  
+war correspondent 战地记者  
+geothermic energy 地热能源  
+etiquette 礼节  
+
+### 7.6
+#### 
+She is now at the summit of her career.  顶点
+It nearly slipped my mind! 我差点忘了! 
+The children still live in squalor. 孩子们还是住在肮脏的环境中.  
+squalidity  
+The idea is dominant over all the others.  
+I couldn't sleep for exquisite pain. 强烈的疼痛,使我无法入睡.  
+
+personal hygiene 个人卫生  
+suppress the news 隐藏消息 
+shawl 披肩   
+scarf 围巾  
+identical with 与...一致 
+contagion 传染病 
+contact 联系 
+colossal success 巨大的成功  
+
+### 7.7
+#### 
+I esteem it an honour to visit your university. 能参观你们学校,我感到很荣幸.   
+I except periodical reports from you. 我希望收到你的周报.   
+Can I get you to proofread my report. 你能帮助我校验一下报告吗?  
+
+
+a vegetation diet 素餐  
+a precipitous cliff 陡峭的悬崖   
+violent storm 
+low-paid drudgery 苦差事   
+quadiant 四分之一  
+ventilation system 通风系统   
+outrageously 过分的  
+culprit 罪犯  
+offender 罪犯   
+an inordinate fondness for candy 对糖异常的喜爱 
+decolonization tendency  
+
+diffculty  
+hardship  
+adversity  
+swamp  
+predicament  
+dilemma  
+plight  
+
