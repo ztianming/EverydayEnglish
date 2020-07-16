@@ -34,8 +34,8 @@ How to do academia appraisal well is one era topic. 如何做好学术评价是�
 
 terrestrial animals 
 idyllic life 诗意的生活  
-an incapable administrator 一个没有能力的管理者
-inpropriety of phrases 
+an incapable administrator 一个没有能力的管理者  
+inpropriety of phrases  
 untreated sewage 未处理的污水  
 the hilarity of a celebration 热闹的庆祝
 
@@ -64,9 +64,9 @@ The snake is a kind of poikilotherm. 蛇是一种冷血动物。
 to belie one's real feelings  
 theoretical analysis 理论分析  
 
-peril v.冒险
-perilous a.危险的
-empiric n.经验主义者
+peril v.冒险  
+perilous a.危险的  
+empiric n.经验主义者  
 
 glossy black hair 乌黑亮丽的秀发  
 glossary 词汇表  
@@ -188,8 +188,8 @@ suppress the news 隐藏消息
 shawl 披肩   
 scarf 围巾  
 identical with 与...一致 
-contagion 传染病 
-contact 联系 
+contagion 传染病  
+contact 联系  
 colossal success 巨大的成功  
 
 ### 7.7
@@ -208,7 +208,7 @@ ventilation system 通风系统
 outrageously 过分的  
 culprit 罪犯  
 offender 罪犯   
-an inordinate fondness for candy 对糖异常的喜爱 
+an inordinate fondness for candy 对糖异常的喜爱  
 decolonization tendency  
 
 diffculty  
