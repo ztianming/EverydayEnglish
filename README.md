@@ -131,7 +131,7 @@ permier 首相
 ### 6.30
 #### 
 The inspiration is elusive.  
-I simmer with anger. 我在怒火中烧。 
+I simmer with anger. 我在怒火中烧。  
 The meteorologist predicted rains for the next days.  
 You can't coerce her into obedience.  
 Find out the underlying causes.  
@@ -176,8 +176,8 @@ etiquette 礼节
 
 ### 7.6
 #### 
-She is now at the summit of her career.  顶点
-It nearly slipped my mind! 我差点忘了! 
+She is now at the summit of her career.  顶点  
+It nearly slipped my mind! 我差点忘了!  
 The children still live in squalor. 孩子们还是住在肮脏的环境中.  
 squalidity  
 The idea is dominant over all the others.  
@@ -225,7 +225,7 @@ She was the soprano. 她是一位女高音。
 The meal at the hotel was just mediocre. 这家旅店的饭一般。  
 The facts sustain his theory. 事实支撑了他的理论。  
 She is weak from lack of sustenance. 她很虚弱由于缺少食物。  
-He behaved in impeccable politness. 他的举止无可挑剔的礼貌。 
+He behaved in impeccable politness. 他的举止无可挑剔的礼貌。  
 At first, I couldn't perceive what he meant. 起初，我并不理解他的意思。   
 
 Hal Aerolite 哈雷陨石  
@@ -249,14 +249,14 @@ disguise v.掩饰；假装
 ### 7.9
 #### 
 She has pre-dated an article without anyone knowing it. 她提前发表了一篇文章没有任何人知道。  
-The case resulted in an acquitial. 这个案子结果宣告无罪。 
+The case resulted in an acquitial. 这个案子结果宣告无罪。  
 He was put into jail for grand larceny. 他被抓紧监狱因为巨大的盗窃。  
 I endured ostracism and discrimination. 我忍受流放和歧视。  
 I join you in holy matrimony. 神圣的婚姻  
 Antarctica is the earth's coldest landmass. 南极洲  
 The apartment is not commodious. 这个公寓不宽敞。   
-The police conficate forbidden objects. 警察充公了违禁品。 
-This palace was home to French royalty. 这个宫殿是法国皇室的家。 
+The police conficate forbidden objects. 警察充公了违禁品。  
+This palace was home to French royalty. 这个宫殿是法国皇室的家。  
 
 waves surge waves  
 wispy wool 小束状羊毛 
