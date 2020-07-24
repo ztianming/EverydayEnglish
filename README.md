@@ -278,13 +278,123 @@ extradition treaty 引渡条约
 principality of Monaco 公国  
 an illustrious accomplishment 巨大的成就  
 
+### 7.13
+#### 
+The cattle are in the shed. 牛在牛棚里。 
+I would like to commend this method to you. 我会推荐这个方法给你。   
+
+temp n.临时  
+tempt v.诱惑  
+temper n.脾气  
+temperate a.节制的  
+temperature n.温度  
+contempt n.轻蔑  
+contemplate v.注视  
+tempo n.节奏  
+temporary a.暂时的  
+
+religious denomination 宗教派别 
+martial stories 战争故事   
+hurdle race 阻碍赛   
+eucalyptus oil 桉树油  
+judiciary 司法部  
+
+### 7.14
+#### 
+Semantics is the branch of linguisitcs. 语义学是语言学的分支。  
+He is from Canberra. 他来自堪培拉。  
+I hate the dingness of my life. 我恨自己碌碌无为的人生。  
+dingy a.暗淡的；肮脏的
+He flatters her outrageously. 他过分的吹捧她。 
+Your such hope is a mere delusion. 你这样的希望只不过是个幻想。   
+
+
+subsequent generation 下一代   
+dormancy stage 休眠期   
+bicameral 两院的  
+cameral a. 立法机构院的  
+mangrove swamp 红树林沼泽  
+
+
+### 7.15
+#### 
+This matter is of paramount importance. 这个问题是最重要的。  
+Her father is too corpulent to play handball. 他爸爸太胖了以至于不能玩手球。  
+fat  
+His voice trembled with tension. 他因为紧张声音发颤。   
+The king gave a sumptuous banquet. 国王给了一顿丰盛的晚宴。   
+Ignorance is bliss. 眼不见，心不烦。  
+She is a famous diplomatic envoy. 她是一个有名的外交使节。  
+She carried a capacious bag. 她带了一个大的背包。  
+The journey went off without mishap. 旅行很顺利没有阻碍。  
+
+textile 纺织品  
+texture 手感；质地  
+anesthesia 麻醉  
+a stellar education 一流的教育  
+the Mesolithic age 中石器时代
+
+### 7.16
+#### 
+They threatened to tow away my car. 他们威胁要拖走我的车。  
+You should allow for her poor eyesight. 你应该考虑她视力差。  
+I might scrape through the exam if I'm lucky. 如果幸运的话，我可能会通过考试。   
+It's a ceremony to unveil a monument. 这是揭开纪念碑的仪式。   
+
+prompt reply 立即回复  
+reimburse 补偿  
+a scarcity of water 缺水  
+a veracious witness 一个诚实的证人  
+escarpment 悬崖  
+
+### 7.17
+#### 
+His eyes looked dull, almost vacuous. 他目光呆滞，几乎是空虚的。  
+The latifundium employs many farm laborers. 农场主雇了好多农场工人。   
+A seismograph can measure the strength of earthquakes. 地震仪可以测量地震的强度。  
+They have a happy marriage. 他们有一个幸福的婚姻。   
+Ideas revolve in her mind. 想法在她脑海里盘旋。   
+She united the knots with dexterous finger. 她用灵活的手指解开了结。   
+I enjoy a trip of spontaneity. 我喜好自发的旅行。 
+
+a ceremonious festival 一个隆重的节日   
+agronomist n.农学家  
+
+### 7.18
+#### 
+This material is imperviious to liquid. 这个材料不透水。 
+an abiding friendship 永恒的友谊 
+
+### 7.19
+#### 
+Lions have an instinct to hunt. 狮子有捕猎的本能。  
+The packages are intact. 包装完好无损。  
+The tempest seems to be calming down. 暴风雨看起来要平息了。 
+
+an ingenious mind 一个有创意的大脑  
+a titanic ship 巨大的船  
+
+### 7.20
+#### 
+Felicity is easily found, but hard to be kept. 幸福容易找到，但是难以维持。  
+
+scenic effect 舞台效果
+
+
 ### 7.7
 #### 
+
 ### 7.7
 #### 
+
 ### 7.7
 #### 
+
 ### 7.7
 #### 
+
+### 7.7
+#### 
+
 ### 7.7
 #### 
