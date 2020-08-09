@@ -398,3 +398,29 @@ scenic effect 舞台效果
 
 ### 7.7
 #### 
+
+
+
+### 8.9
+#### 
+He is graceful in manner. 他的行为很优雅。  
+
+society stratum 社会阶层  
+
+a concave mirror 凹面镜  
+a convex mirror 凸面镜  
+
+feudal ideology 封建思想  
+capitalist ideology 资本主义思想  
+
+decline n.下降  
+declivity n. 斜坡；坡度  
+
+marvel at your skill 惊叹于你的技能  
+the patriarchic society 父系社会  
+
+nubile a.适婚的  
+connubial a.婚姻的  
+matrimony n.婚姻的  
+
+legal parlance 法律用语  
