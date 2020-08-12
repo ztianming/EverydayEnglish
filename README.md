@@ -424,3 +424,45 @@ connubial a.婚姻的
 matrimony n.婚姻的  
 
 legal parlance 法律用语  
+
+### 8.9
+#### 
+
+### 8.9
+#### 
+
+### 8.12
+#### 
+This is an antecedent of the war. 这是战争的预兆。  
+The ship moored in the estuary. 船停泊在入海口。  
+Inertia is your worst enemy. 懒惰是你最大的敌人。  
+After a minutes reflection, he answered. 经过一分钟的反应，他回答。  
+reflect   
+reflection  
+refract  折射  
+refraction   
+
+allerge n.过敏症  
+allergen n.过敏原  
+conficate drug 没收毒品  
+taboo n.禁忌  
+tatoo n.纹身  
+pathological diagnosis 病理诊断 
+a panorama of history 历史的全貌  
+
+glaciation n.冰川  
+deglaciation n.冰川的消失  
+
+reclamation n.开垦  
+reclaim v.开垦  
+gentry 贵族  
+gentlefolk 名门世家  
+magnetics engineering 电磁学工程  
+kinematics emulation 运动学仿真   
+impermeable rock 不透水岩石  
+impersonal comment 客观的评论    
+stratification 分层  
+to inaugurate a new era 去开创新纪元  
+vanquish his nemesis 战胜他的报应  
+an inconspicuous grey building 不起眼的建筑  
+irrelevant details 不相关的细节  
