@@ -1,0 +1,15 @@
+barly 大麦  
+wheat 小麦  
+rye 黑麦  
+sorghum 高粱  
+oats 燕麦  
+rice 大米  
+millet 小米 
+paddy 水稻  
+maize/corn 🌽玉米 
+barn 糠  
+chaff 糠  
+flour 面粉  
+soybean 大豆  
+sesame 芝麻  
+peas 豌豆  
