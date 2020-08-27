@@ -381,14 +381,31 @@ Felicity is easily found, but hard to be kept. 幸福容易找到，但是难以
 scenic effect 舞台效果
 
 
-### 7.7
+### 7.21
 #### 
+We cannot prophesy what may happen. 我们不能预见会发生什么。  
+A defunct can never talk again. 死人不能再说话。  
+The music has an ethereal quality. 这音乐有一种飘渺的感觉。  
 
-### 7.7
+### 7.22
 #### 
+He was selected with unanimous approval. 经过全体一致通过，他被选举了。  
+We should not connive at terrorism. 我们不应该容忍恐怖主义。   
 
-### 7.7
+riproarious capatial city 繁华的城市  
+a voluminous coat 
+a sumptuous dinner 丰盛的晚餐  
+
+### 7.23
 #### 
+The negotiations have reached an impasse. 谈判进入了困境。  
+
+porous soil 多孔的泥土  
+poor sanitation 差的卫生  
+to falsity the data 伪造数据  
+husband 丈夫  
+huabandary 畜牧业  
+husbandman 农夫、百姓  
 
 ### 7.7
 #### 
