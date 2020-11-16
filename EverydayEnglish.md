@@ -483,3 +483,62 @@ to inaugurate a new era 去开创新纪元
 vanquish his nemesis 战胜他的报应  
 an inconspicuous grey building 不起眼的建筑  
 irrelevant details 不相关的细节  
+
+### 11.16
+
+reck v.顾虑
+
+reckon v.计算；认为
+
+reckless a.不计后果的
+
+feckless  a.无效的
+
+
+
+derive v. 起源
+
+derivative a.派生的；n.衍生物
+
+derivation n.词源；来历
+
+
+
+explode v.爆炸
+
+explosive a.爆炸的 n. 炸药
+
+explosion n.爆炸
+
+expendition n.远征
+
+explore v.探险
+
+exploit v.开采
+
+exposure n.暴露
+
+exclusive a.排他的
+
+
+
+neutral a.中立的
+
+neutralize v.使中立
+
+neutron n.中子
+
+intermediary n.中间人
+
+
+
+discreet a.谨慎的；朴素的
+
+indiscretion n.不谨慎；鲁莽
+
+temerity n.鲁莽
+
+imprudence n.轻率
+
+discrimination n.区别；歧视
+
