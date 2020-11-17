@@ -542,3 +542,30 @@ imprudence n.轻率
 
 discrimination n.区别；歧视
 
+### 11.17
+
+poly - 多个
+
+polymer 聚合体
+
+polymerization 聚合
+
+polyandrous a.一妻多夫的
+
+
+
+attitude 态度
+
+altitude 高度
+
+latitude 维度
+
+longitude 经度
+
+fortitude 刚毅
+
+aptitude 天资
+
+gratitude 感激
+
+platitude 陈词滥调
