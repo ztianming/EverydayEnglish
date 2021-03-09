@@ -4030,3 +4030,70 @@ aptitude 天资
 gratitude 感激
 
 platitude 陈词滥调
+
+# 2021
+
+
+
+## 3.6
+
+She is the most progressive writer of that times. a.先进的
+
+She was lost in reverie. n.白日梦
+
+I don‘t want to encumber my family. v.拖累
+
+The country has made conciliatory gestures. a.调和的
+
+I intercede with my husband 让步
+
+
+
+## 3.7
+
+Don't intervene in the affairs of other country. v.干涉
+
+I won't meddle with your plan 
+
+Nothing can prevent us from carrying out the plan
+
+
+
+## 3.8
+
+Athens is a city of great antiquity. n.古代
+
+Don't meddle in my affairs. v.干涉
+
+She regarded smoking with abomination. n.憎恨
+
+archaic porcelain 古老的瓷器
+
+Thank you for fill in for me. 代替
+
+The children were literally starving. adv.确实地；字面地
+
+the local specialty n.专业；特产
+
+a sloopy room a.邋遢的
+
+Do not succumb to social pressures. v.屈从
+
+He is miserly with his money. a.吝啬的
+
+Don't clutter my desk. v.弄乱
+
+## 3.9
+
+Yout statement not jibe with the facts. 与……一致
+
+He is a professional psychiatrist. 精神病学家
+
+He is a great exponent of dance. n.代表者；阐述者
+
+Avarice drove him into theft. n.贪婪
+
+No one can gainsay the fact. v.否认
+
+Your argument is too weak to convince me. v. 说服
+
