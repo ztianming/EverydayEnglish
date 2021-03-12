@@ -4035,6 +4035,310 @@ platitude 陈词滥调
 
 
 
+# EveryDay English 2021
+
+
+
+## 1.20
+
+His period of officeholding only lasts for one months 任职
+
+a large caliber gun 大口径
+
+He has been prodigal of all the money  挥霍
+
+facade of the palace 表面
+
+I digress from my speech 跑题
+
+to perpetuate the memory 延续
+
+He felt a flicker of regret 丝
+
+No one likes to be regarded as a person of poltroonery 懦夫
+
+I concede that I make a mistake 承认
+
+He is enthusiastic about helping others 热心的
+
+I demur to his statement 提出异议
+
+You shouldn't neglect your health
+
+
+
+## 1.21
+
+The ravenous lion tore the prey. 饥饿的
+
+an intrepid explorer 无畏的
+
+He was lost in reverie 白日梦
+
+an emotive speech 动感情的
+
+skimpy underwear 短小的；暴露的
+
+It is against etiquette to do so 礼节
+
+a tyrannical government 专制的
+
+The speech aroused national fervor 热情
+
+an impassive spectator 冷漠的
+
+He made a contrite apology 懊悔的
+
+Don't scruple to ask for anything you want 顾虑
+
+Irresolute people won't make good leaders
+
+This marvel continues to fill me with elation 兴高采烈
+
+I had not seen him so gleeful 愉快的
+
+His eyes shine with ecstasy 狂喜
+
+I don't begrudge her being so successful 嫉妒
+
+
+
+## 1.23
+
+He shows apathy towards everything 冷漠
+
+There's been a noticeable improvement in her handwriting 显著的
+
+It won't help to fret about the problem 烦躁
+
+Your joke will exasperate him 使恼怒
+
+Everyone shall have a good nurture 养育；培养
+
+There is no doubt that he is innocent 无辜的
+
+We satiate ourselves with good food
+
+The old man is a nettlesome man 烦人的
+
+a pavid kid 胆小的
+
+They intimidate the witness into slience 威胁
+
+They became exultant at the good news 高兴
+
+ 
+
+## 1.25
+
+deciduous teeth 乳牙
+
+hideous clothes 丑陋的衣服
+
+He wished to bestow great honors upon the hero 给予
+
+She regarded smoking with abomination 节制
+
+
+
+## 1.28
+
+He performance was full of maturity 成熟
+
+The thermometer needed calibration 校准
+
+He attempted to mediate their difference 调和
+
+a perceptive observer 有洞察力的
+
+He is scrupulous about every detail 小心的
+
+The dove is an emblem of peace 象征
+
+I was appalled by the loutish behavior 粗野的
+
+a prodigious storm 惊人的
+
+The noisy traffic is an annoyance 烦人的
+
+
+
+## 1.29
+
+God blessed him with a beautiful wife 祝福
+
+The indolent man has no ambition 懒惰的
+
+One must be decisive， nor irresolute 犹豫的
+
+A slight mistake could precipitate a disaster 促成
+
+The package are intact 未触动的
+
+Flowers perish when frost comes 灭亡
+
+I'm rentless in the pursuit of my goals  无情的；坚持不懈的
+
+We should learn from her dauntless spirits 无畏的
+
+I had not seen him so gleeful 愉快的
+
+He stared at her impassive face 冷漠的
+
+
+
+## 1.30
+
+We satiate ourselves with good food 使饱足
+
+He has an aptitude for languages 天资
+
+
+
+## 1.31
+
+She was prostrate on the floor 俯卧的
+
+She has a blithesome nature 欢乐的
+
+Thank you for your enthusiastic support 热情的
+
+I demur to his statement 提出异议
+
+to contrive an escape form the prison 图谋
+
+The marriage began to unravel 拆解
+
+Learn to change your somber mood 忧郁的
+
+I changed my plan in deference to your opinion 尊重
+
+I made preparations beforehand 预先
+
+His devotion to music was easy to see
+
+The flood was  a calamity 大灾难
+
+He always pay studious attention to detail 仔细的；好学的
+
+
+
+## 2.1
+
+reagent kit 试剂盒
+
+The police confiscate the forbidden 充公
+
+Constant criticism is enough to demoralize anybody 使丧失斗志
+
+His languid manner annoys me 无精打采的
+
+I was startled form sleep 惊动
+
+frenetic activity 狂乱的
+
+The kill and maim innocent civilians 残害
+
+ 
+
+## 2.2
+
+I dread the dog 害怕
+
+What's the original of your anxiety？ 焦虑
+
+His rendering is marvelous 演奏
+
+a sumptuous dinner 华丽的
+
+a emotion speech 感动的
+
+I found myself in a predicament 困境
+
+The doctor gave him general anesthesia 麻醉
+
+He spoke in a haughty tone 傲慢的
+
+Officials tried to salvage the situation 挽回
+
+
+
+## 2.5
+
+
+
+a menace to world peace 威胁
+
+He was deep in gloom 忧郁
+
+His rude words dumbfound me 使惊讶
+
+
+
+
+
+## 2.6
+
+This is an excerpt from a novel 摘要
+
+She became the bywords of the village. 笑柄
+
+Heavy cloud is the forerunner of storm 预示
+
+a blotch of ink 块
+
+stogy food 难以消化的
+
+sedulity is our traditional virtue of our nation 勤奋
+
+a benevolent organization 慈善的
+
+
+
+## 2.7
+
+formal attire 正式服装
+
+Don't ask impertinent questions 不相关的
+
+He is an acerbic character 酸的
+
+eradicate poverty 消除
+
+to effectuate a plan 实现
+
+
+
+
+
+## 2.8
+
+The radio show be on the air
+
+up in the air
+
+
+
+oral testimony 口头证明
+
+Warships will accompany the convoy  护送
+
+I don't think that's a false presumption 假设
+
+assumption
+
+suppose
+
+hypothesis
+
+He is industrious in his studies 勤勉的
+
+she had a forlorn look on her face 无助的
+
+She didn't forsake her ideals 抛弃
+
+
+
 ## 3.6
 
 She is the most progressive writer of that times. a.先进的
@@ -4096,4 +4400,24 @@ Avarice drove him into theft. n.贪婪
 No one can gainsay the fact. v.否认
 
 Your argument is too weak to convince me. v. 说服
+
+
+## 3.12
+He has a property in the suburbs. n.财产；所有物  
+proper a.合适的；正当的  
+properly adv.适当地  
+prosper v.繁荣  
+prosperity n.繁荣  
+poverty n. 贫穷  
+propose v.提出；求婚  
+proposition n.提议；  
+proportion n.比例  
+propulsion n.推进  
+
+
+
+
+
+
+
 
