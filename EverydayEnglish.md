@@ -4379,7 +4379,7 @@ The children were literally starving. adv.确实地；字面地
 
 the local specialty n.专业；特产
 
-a sloopy room a.邋遢的
+a sloppy room a.邋遢的
 
 Do not succumb to social pressures. v.屈从
 
@@ -4389,7 +4389,7 @@ Don't clutter my desk. v.弄乱
 
 ## 3.9
 
-Yout statement not jibe with the facts. 与……一致
+Your statement not jibe with the facts. 与……一致
 
 He is a professional psychiatrist. 精神病学家
 
@@ -4400,6 +4400,68 @@ Avarice drove him into theft. n.贪婪
 No one can gainsay the fact. v.否认
 
 Your argument is too weak to convince me. v. 说服
+
+
+
+## 3.10 
+
+professional standard 专业标准
+
+a prolonged drought 长期的干旱
+
+She has an aversion to pets. n.厌恶
+
+He tends to get grouchy when he's tired. a.发脾气
+
+Leaves will clog the pipes. v.堵塞 n.木塞
+
+He is slothful in his job. a.懒散的
+
+Life in the countryside is arduous. a.艰苦的
+
+a recalcitrant pupil a.不服从的
+
+He had a firm and indomitable spirit. a.百折不挠的
+
+His face was barely discernible in the dark. a.可辨认的
+
+
+
+## 3.11
+
+There is only a pinpoint of light in the cave.  v.指出 n.精确位置
+
+We must  struggle for higher productivity. n.生产力
+
+I balk at the price. v.犹豫；阻碍
+
+The insects pollinate the trees. v.传粉
+
+The don't inflict collateral damage. a.附属的
+
+ unilateral a.单边的
+
+bilateral a.双边的
+
+trilateral a.三边的
+
+multilateral a.多边的
+
+The kind of weapon is obsolete. a.过时的
+
+There are a lot of frogs in the marsh.  n.沼泽
+
+The sands of the beach are incalculable a.无数的
+
+Bands of gunmen terrorize workers. v.恐吓
+
+deciduous teeth a.非永久性的
+
+Unhappiness was sprung from rapacity. n.掠夺
+
+They intercede the king for me. v.说情
+
+
 
 
 ## 3.12
@@ -4413,6 +4475,29 @@ propose v.提出；求婚
 proposition n.提议；  
 proportion n.比例  
 propulsion n.推进  
+
+Nothing will prosper in his hands. v.成功
+
+The autocrat has complete power. n.独裁者
+
+We are hoping for an early resumption of peace talks. n.恢复
+
+She shouldn't desecrate the statue. v.亵渎
+
+consecrate v.奉为神圣；贡献
+
+anti-graft == anti-corruption 反腐 
+
+how to graft an apple tree 移植
+
+Children are susceptible to various illness. a. 易受影响的
+
+He admitted his liability for the accident. n.责任
+
+They have no recess in their work. n/v. 休息
+
+He used a conciliatory tone. a.调和的
+
 
 
 
