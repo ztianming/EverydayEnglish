@@ -35,3 +35,29 @@ The optimist sees the opportunity in the disaster; the pessimist sees the disast
 No matter when you start, the more importantly is that do not stop after started. No matter when you end, the more importantly is that do not regret after ended.
 
 Success is the sum of small efforts,  repeated day in and day out.
+
+Everyone has talent.  What is rare is the courage to follow the talent to the dark place where it leads.
+
+Nobody can go back and start a new beginning,  but anyone can start now and make a new ending.
+
+But why wait? Dream is now.
+
+Destiny is not a matter of chance, it is a matter of choice; it is not a thing to be waited for, it is a thing to be achieved.
+
+Success consists of going from failure to failure without loss of enthusiasm.
+
+Excellent is not a skill, it'a an attitude.
+
+Try not to become a man of success, but rather try to become a man of value.
+
+The journey of a thousand miles begins with one step.
+
+Put your heart, mind and soul into even your smallest acts. This is the sercet of success.
+
+Change your thoughts and you change your world.
+
+Yesterday is not ours to recover, but tomorrow is ours to win or lose.
+
+If you don't know where you are going, any road will get you there.
+
+
