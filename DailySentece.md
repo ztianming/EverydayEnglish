@@ -48,6 +48,8 @@ Success consists of going from failure to failure without loss of enthusiasm.
 
 Excellent is not a skill, it'a an attitude.
 
+2021.09
+
 Try not to become a man of success, but rather try to become a man of value.
 
 The journey of a thousand miles begins with one step.
@@ -60,4 +62,10 @@ Yesterday is not ours to recover, but tomorrow is ours to win or lose.
 
 If you don't know where you are going, any road will get you there.
 
+The secret of getting ahead is getting started.
 
+Problems are not stop signs,  they are guidelines.
+
+The only disability in life is a bad attitude.
+
+Only those who will risk going too far can possibly find out how far one can go.
