@@ -69,3 +69,26 @@ Problems are not stop signs,  they are guidelines.
 The only disability in life is a bad attitude.
 
 Only those who will risk going too far can possibly find out how far one can go.
+
+What you do today can improve all your tomorrows.
+
+One way to get the most out of life is to look upon it as an adventure.
+
+When you think positive, good things happen.
+
+Keep on going and never give up.
+
+There is no fresh start! Lives carry on.
+
+It's nice to just embrace the natural beauty within you.
+
+Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.
+
+High expectations are the key to everything.
+
+No matter what label is thrown your way, only you can define yourself.
+
+Don't find fault, find a remedy.
+
+Hang on to the thought of what you want.
+
