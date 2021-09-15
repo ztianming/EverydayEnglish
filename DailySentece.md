@@ -92,3 +92,18 @@ Don't find fault, find a remedy.
 
 Hang on to the thought of what you want.
 
+With ordinary talent and extraordinary perseverance, all things are attainable.
+
+Life is what you make it.
+
+I am a slow wolker, but I never walk back.
+
+Doubt kills more dreams than failure ever will.
+
+All men who have achieved great things have been great dreams.
+
+Believe and act as if it were impossible to fail.
+
+A winner is just a loser who tried one more time.
+
+A river cuts through rock, not because of its power, but because of it persistence.
