@@ -48,7 +48,7 @@ Success consists of going from failure to failure without loss of enthusiasm.
 
 Excellent is not a skill, it'a an attitude.
 
-2021.09
+## 2021.09
 
 Try not to become a man of success, but rather try to become a man of value.
 
@@ -171,4 +171,22 @@ Hang in there! Victory is just around the corner!
 Whatever you are, be a good man.
 
 ## 2021.10
+
+With the new day comes new strength and new thoughts.
+
+Study the past, if you would divine the future.
+
+The prosperity of the country consists in everyone's brilliance.
+
+May our country prosper and the people live a peaceful life!
+
+It's time to start living the life you've imagined!
+
+With every sun comes a new day. A new beginning.
+
+It's difficult to understand the sum of a person's life.
+
+A fool thinks himself to be wise, but a wise man knows himself to be a fool.
+
+Life shrinks or expands in proportion to one's courage.
 
